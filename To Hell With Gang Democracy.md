@@ -26,3 +26,6 @@ And so, democracy will always be about deciding what a democracy is about.
 
 Instead, perhaps democracy should be an intermediary for deciding the best course of action, already knowing the best course of action is not democracy. We've tried that one.
 
+But clearly we couldn't have known democracy was going to perform badly without first voting on it. No vote for democracy will reach 100%, every idiot will vote for himself and that's who should represent them, idiots.
+
+But if idiots are going to represent us, I would like to be my own self representing idiot. If I'm going to make a mistake I'm going to be responsible for it.

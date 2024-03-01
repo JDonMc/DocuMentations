@@ -1,0 +1,3 @@
+# Comedy
+
+Comedy, it's so great isn't it. Getting everyone around you involved in laughing at one particular group of people at a word's command. Being up on stage and pitting one group of people against an entire other group of people just with a tone of voice. So brilliant. You could essentially laugh at a whole group of people with the target audience and the audience's target. As long as both are present and both align you can bring it to the surface like a volcanic vent in the ocean: boiling eruptions just launching into the nether. Little organisms that can withstand the harshest conditions sit there and feed on it.
